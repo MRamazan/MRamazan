@@ -1,0 +1,1 @@
+At, Avrat, Yapay zeka
